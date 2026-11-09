@@ -6,7 +6,7 @@ With the blessings of our families, we joyfully invite you to our Ring Ceremony.
 🕥 10:30 AM onwards
 📍 The Grand Orchid Banquets & Party Hall, Delhi Road, Hapur
 
-Please open the invite: https://harsh-chetna-ring-ceremony.vercel.app
+Please open the invite: https://harsh-chetna-engagement.vercel.app
 
 We look forward to celebrating with you! 🙏
 
